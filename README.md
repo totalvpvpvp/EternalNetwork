@@ -11,7 +11,7 @@ Eternal Network机场，超低延迟隧道 + IPIC专线，最高可达5Gbps带�
 新用户注册有5天的试用套餐，先试用再购买。111111
 
 ## Eternal Network优惠码
-11111
+111111
 暂无最新优惠码
 
 ## Eternal Network价格
